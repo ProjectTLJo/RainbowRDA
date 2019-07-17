@@ -4,3 +4,5 @@
 #get more sponsors
 #increase donations
 #increase voluteers
+
+CHILDRENS IN NEED IS NOV 2019 ... LETS AIM FOR 50% DELIVERY OF A "DUMB" page by September 2019
